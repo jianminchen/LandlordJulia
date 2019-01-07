@@ -5,3 +5,4 @@ It is a new year. It is the day one for me to open a repository called landlordJ
 
 
 [Clothing sofa purchase 2000](http://juliachencoding.blogspot.com/2018/12/case-study-my-clothing-sofa-purchase-in.html)<br>
+[1999-2001 expenses analysis](http://juliachencoding.blogspot.com/2018/12/case-study-1999-to-2001-expenses.html)<br>
