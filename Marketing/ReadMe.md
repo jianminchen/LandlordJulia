@@ -3,5 +3,10 @@
 
 It is a new year. It is the day one for me to open a repository called landlordJulia. I like to push myself to get organized and learn more about personal finance and serve people better as a landlord. 
 
+Address:
+260 nw 19th st
+Boca Raton, Florida 33342
+
+
 
 
