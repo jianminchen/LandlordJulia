@@ -12,8 +12,12 @@ Near FAU, between 2nd and 4th ave, two bedroom one bath condo. All tiled floor, 
 
 Bedrooms are south facing, and living room with nice garden view, one car parking lot for owner, and guest parking first come first serve. Laundry room with washing machine. Water is included in condo assication maintenance fee. Second floor, U shape building floor plan, 9 units second floor, 9 units first floor. The rental unit is the center of building in second floor. 
 
+The size of condo is 750 square foot. 
+
 The condo association is managed by professional property management company. 
 If you have interest, please contact the owner by wechat or email. Jianminchen.fl@gmail.com
+
+Market price for renting: $1500/ 2 bedroom unit in the building, asking $1200/ month. 
 
 
 
